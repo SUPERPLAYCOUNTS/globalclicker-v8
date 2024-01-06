@@ -1,0 +1,1 @@
+Global clicker v8
